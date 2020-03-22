@@ -52,13 +52,6 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 - http://www.literactive.com/Home/index.asp​
 - http://www.sciencekids.co.nz/​
 - https://www.switchzoo.com/​
-
-https://www.seussville.com/​
-
-https://www.turtlediary.com/​
-
-https://www.e-learningforkids.org/​
-
-​
-
-
+- https://www.seussville.com/​
+- https://www.turtlediary.com/​
+- https://www.e-learningforkids.org/​
