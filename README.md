@@ -2,7 +2,12 @@
 Due to current COVID-19 Corona virus crisis, lots of companies are offering their educational resources for free. This eases pressure on parents who are working on the front lines crushing the virus either in medical industry or supporting the population working in grocery, pharmacy and other shops that needed to be kept open.
 
 ## School Time
-- [Khan Academy](https://www.khanacademy.org) - Khan Academy is a free resource for students, teachers, and parents. [Khan Academy Blog about the offering](https://www.khanacademy.org/about/blog/post/611770255064350720/remote-learning-with-khan-academy-during-school)
+- [Khan Academy](https://www.khanacademy.org) - Khan Academy is a free resource for students, teachers, and parents. Include schedules etc [Khan Academy Blog about the offering](https://www.khanacademy.org/about/blog/post/611770255064350720/remote-learning-with-khan-academy-during-school)
+
+## Learning Sites
+- [ABC Mouse](https://www.abcmouse.com/code) - Code: SCHOOL7771 - ABCmouse free for all - ABCmouse is offering a free first month to new users. Read on to know how you can redeem codes on ABCmouse and get your first month free.
+- [Reading IQ](https://bit.ly/2WhUldy) - Code: SCHOOL7771 - For Kids in Preschool through 6th Grade
+- [Academic Adventures](https://bit.ly/2WgXoCL) - Code: SCHOOL7771 - For Kids in 3rd Grade through 8th Grade Free
 
 ## Story Time
 - [Audible Stories](https://stories.audible.com/start-listen) - For as long as schools are closed, we're open. Starting today, kids everywhere can instantly stream an incredible collection of stories, including titles across six different languages, that will help them continue dreaming, learning, and just being kids.
