@@ -23,7 +23,7 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 
 ## Compilations
 - [List of Educational Companies offering free subscriptions](https://kidsactivitiesblog.com/135609/list-of-education-companies-offering-free-subscriptions/)
-- [what to read and stream for free](https://www.marketplace.org/2020/03/20/heres-what-to-read-and-stream-for-free-during-the-covid-19-pandemic/)
+- [Here's what to read and stream for free](https://www.marketplace.org/2020/03/20/heres-what-to-read-and-stream-for-free-during-the-covid-19-pandemic/)
 
 ## Printable Sheets
 - Reading Log:  https://drive.google.com/file/d/1xHLR91_EAbuM9p8L6gYXb4lldNF7P0zm/view
