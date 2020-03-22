@@ -3,8 +3,8 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 
 ## School Time/Home Schooling
 - [Khan Academy](https://www.khanacademy.org) - Khan Academy is a free resource for students, teachers, and parents. Include schedules etc [Khan Academy Blog about the offering](https://www.khanacademy.org/about/blog/post/611770255064350720/remote-learning-with-khan-academy-during-school)
-- [Scholastic Learn at Home)(https://classroommagazines.scholastic.com/support/learnathome.html) - Day to day projects to keep kids reading, thinking and growing
-- [Home Schooling by allinonehomeschool](https://allinonehomeschool.com) - A Complete, Free online Christian homeschool curriculum for your family and mine. [Thinking games by grade/level](https://allinonehomeschool.com/thinking/)
+- [Scholastic Learn at Home](https://classroommagazines.scholastic.com/support/learnathome.html) - Day to day projects to keep kids reading, thinking and growing
+- [Home Schooling](https://allinonehomeschool.com) - allinonehomeschool - A Complete, Free online Christian homeschool curriculum for your family and mine. [Thinking games by grade/level](https://allinonehomeschool.com/thinking/)
 
 ## Story Time
 - [Audible Stories](https://stories.audible.com/start-listen) - For as long as schools are closed, we're open. Starting today, kids everywhere can instantly stream an incredible collection of stories, including titles across six different languages, that will help them continue dreaming, learning, and just being kids.
