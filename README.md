@@ -1,5 +1,5 @@
 # Schools Closed Free Resources
-Due to current COVID-19 Corona virus crisis, lots of companies are offering their educational resources for free. This eases pressure on parents who are working on the front lines crushing the virus either in medical industry or supporting the population working in grocery, pharmacy and other shops that needed to be kept open.
+Due to current COVID-19 Corona virus crisis, lots of companies are offering their educational resources for free. This eases pressure on parents who are working on the front lines crushing the virus either in medical industry or supporting the community working in grocery, pharmacy and other stores that needed to be kept open.
 
 ## School Time/Home Schooling
 - [Khan Academy](https://www.khanacademy.org) - Khan Academy is a free resource for students, teachers, and parents. Include schedules etc [Khan Academy Blog about the offering](https://www.khanacademy.org/about/blog/post/611770255064350720/remote-learning-with-khan-academy-during-school)
@@ -36,3 +36,29 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 - Sixth Grade: https://drive.google.com/file/d/1DOmedj78O1mSXbBJHJPwyvJJfVpfQfR8/view?usp=sharing​
 - Seventh Grade:https://drive.google.com/file/d/1KJpgRs0t1haOSFny4qDohg56wxH8xDwW/view?usp=sharing​
 - Eighth Grade:https://drive.google.com/file/d/1eKMKFMJazvk--ZjKqjT6JwLvLBO6oVTh/view​
+
+## More Free Resources
+- https://www.starfall.com/h/​
+- https://www.abcya.com/​
+- https://www.funbrain.com/​
+- https://www.splashlearn.com/​
+- https://www.storylineonline.net/​
+- https://pbskids.org/​
+- https://www.highlightskids.com/​
+- https://kids.nationalgeographic.com/​
+- https://www.coolmath4kids.com/​
+- http://www.mathgametime.com/​
+- https://www.uniteforliteracy.com/​
+- http://www.literactive.com/Home/index.asp​
+- http://www.sciencekids.co.nz/​
+- https://www.switchzoo.com/​
+
+https://www.seussville.com/​
+
+https://www.turtlediary.com/​
+
+https://www.e-learningforkids.org/​
+
+​
+
+
