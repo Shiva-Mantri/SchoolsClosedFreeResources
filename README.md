@@ -27,31 +27,31 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 
 ## Printable Sheets
 - Reading Log:  https://drive.google.com/file/d/1xHLR91_EAbuM9p8L6gYXb4lldNF7P0zm/view
-- Kindergarten https://drive.google.com/file/d/10JQHwHMe5aX1f0LDGFfgTf_XJKFs7Hpg/view?usp=sharing​
-- First Grade:  https://drive.google.com/file/d/1LZKV7pKFWvPqFjj1Hm3jhLgi-xc1--TP/view?usp=sharing​
-- Second Grade:  https://drive.google.com/file/d/1HMgiHy4VfuFPNTngymIaFIzKloaIDz-V/view?usp=sharing ​
-- Third Grade:  https://drive.google.com/file/d/12mLbU0mU3lmwIVR-pUfYro2k2uJzppPA/view?usp=sharing​
-- Fourth Grade: https://drive.google.com/file/d/1jlOGiblNMP1wtI55ngxOtiQOGA6wEr0r/view?usp=sharing​
-- Fifth Grade: https://drive.google.com/file/d/1JHFF9uAKi3cqgaLfLsLfHtzurGh4TQM_/view?usp=sharing ​
-- Sixth Grade: https://drive.google.com/file/d/1DOmedj78O1mSXbBJHJPwyvJJfVpfQfR8/view?usp=sharing​
-- Seventh Grade:https://drive.google.com/file/d/1KJpgRs0t1haOSFny4qDohg56wxH8xDwW/view?usp=sharing​
-- Eighth Grade:https://drive.google.com/file/d/1eKMKFMJazvk--ZjKqjT6JwLvLBO6oVTh/view​
+- Kindergarten https://drive.google.com/file/d/10JQHwHMe5aX1f0LDGFfgTf_XJKFs7Hpg/view?usp=sharing
+- First Grade:  https://drive.google.com/file/d/1LZKV7pKFWvPqFjj1Hm3jhLgi-xc1--TP/view?usp=sharing
+- Second Grade:  https://drive.google.com/file/d/1HMgiHy4VfuFPNTngymIaFIzKloaIDz-V/view?usp=sharing
+- Third Grade:  https://drive.google.com/file/d/12mLbU0mU3lmwIVR-pUfYro2k2uJzppPA/view?usp=sharing
+- Fourth Grade: https://drive.google.com/file/d/1jlOGiblNMP1wtI55ngxOtiQOGA6wEr0r/view?usp=sharing
+- Fifth Grade: https://drive.google.com/file/d/1JHFF9uAKi3cqgaLfLsLfHtzurGh4TQM_/view?usp=sharing
+- Sixth Grade: https://drive.google.com/file/d/1DOmedj78O1mSXbBJHJPwyvJJfVpfQfR8/view?usp=sharing
+- Seventh Grade:https://drive.google.com/file/d/1KJpgRs0t1haOSFny4qDohg56wxH8xDwW/view?usp=sharing
+- Eighth Grade:https://drive.google.com/file/d/1eKMKFMJazvk--ZjKqjT6JwLvLBO6oVTh/view
 
 ## More Free Resources
-- https://www.starfall.com/h/​
-- https://www.abcya.com/​
-- https://www.funbrain.com/​
-- https://www.splashlearn.com/​
-- https://www.storylineonline.net/​
-- https://pbskids.org/​
-- https://www.highlightskids.com/​
-- https://kids.nationalgeographic.com/​
-- https://www.coolmath4kids.com/​
-- http://www.mathgametime.com/​
-- https://www.uniteforliteracy.com/​
-- http://www.literactive.com/Home/index.asp​
-- http://www.sciencekids.co.nz/​
-- https://www.switchzoo.com/​
-- https://www.seussville.com/​
-- https://www.turtlediary.com/​
-- https://www.e-learningforkids.org/​
+- https://www.starfall.com/h/
+- https://www.abcya.com/
+- https://www.funbrain.com/
+- https://www.splashlearn.com/
+- https://www.storylineonline.net/
+- https://pbskids.org/
+- https://www.highlightskids.com/
+- https://kids.nationalgeographic.com/
+- https://www.coolmath4kids.com/
+- http://www.mathgametime.com/
+- https://www.uniteforliteracy.com/
+- http://www.literactive.com/Home/index.asp
+- http://www.sciencekids.co.nz/
+- https://www.switchzoo.com/
+- https://www.seussville.com/
+- https://www.turtlediary.com/
+- https://www.e-learningforkids.org/
