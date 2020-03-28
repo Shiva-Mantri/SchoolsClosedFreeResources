@@ -22,6 +22,7 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 
 ## Mind Benders
 - [Chess Puzzles](https://www.chesspuzzles.com/) - Checkmate in One, Two and Three
+- [Chess Kid](https://www.chesskid.com/) [Chess.com](https://www.chess.com/) - Make sure an adult monitors the child as these websites need login and has interaction features.
 
 ## Health and Fitness
 - [P.E. with Joe](https://www.youtube.com/playlist?list=PLyCLoPd4VxBvQafyve889qVcPxYEjdSTl) [Kids workout](https://www.youtube.com/playlist?list=PLyCLoPd4VxBvPHOpzoEk5onAEbq40g2-k) With millions of children out of school around the world, Joe Wicks, a YouTube fitness instructor, has taken it upon himself to become their PE teacher ([CNN](https://www.cnn.com/2020/03/25/world/joe-wicks-coronavirus-workout-wellness-trnd/index.html)).
