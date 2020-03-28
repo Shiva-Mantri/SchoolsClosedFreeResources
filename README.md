@@ -5,6 +5,7 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 - [Khan Academy](https://www.khanacademy.org) - Khan Academy is a free resource for students, teachers, and parents. Include schedules etc [Khan Academy Blog about the offering](https://www.khanacademy.org/about/blog/post/611770255064350720/remote-learning-with-khan-academy-during-school)
 - [Scholastic Learn at Home](https://classroommagazines.scholastic.com/support/learnathome.html) - Day to day projects to keep kids reading, thinking and growing
 - [Home Schooling](https://allinonehomeschool.com) - allinonehomeschool - A Complete, Free online Christian homeschool curriculum for your family and mine. [Thinking games by grade/level](https://allinonehomeschool.com/thinking/)
+- [WeAreTeachers](https://www.weareteachers.com/about-weareteachers/) - Our mission is to inspire teachers and help them succeed by sharing practical classroom ideas, the best freebies and giveaways, and teacher-to-teacher advice and humor.
 
 ## Story Time
 - [Audible Stories](https://stories.audible.com/start-listen) - For as long as schools are closed, we're open. Starting today, kids everywhere can instantly stream an incredible collection of stories, including titles across six different languages, that will help them continue dreaming, learning, and just being kids.
@@ -15,20 +16,22 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 - [Reading IQ](https://bit.ly/2WhUldy) - Code: SCHOOL7771 - For Kids in Preschool through 6th Grade
 - [Academic Adventures](https://bit.ly/2WgXoCL) - Code: SCHOOL7771 - For Kids in 3rd Grade through 8th Grade Free
 
-## Mind Benders
-- [Chess Puzzles](https://www.chesspuzzles.com/) - Checkmate in One, Two and Three
-
 ## Virtual Tours
 - [Museum Virtual Tours](https://www.travelandleisure.com/attractions/museums-galleries/museums-with-virtual-tours) - Pretend to travel the world. Go on a virtual tour of these 12 famous museums.
 - [Virtual Disney Tours](https://www.youtube.com/channel/UCYyJUEtYv-ZW7BgjhP3UbTg) - Virtually experience Walt Disney World attractions, shows, hotels, monorails, trains, boats, park areas, and more within an interactive 360º video environment.
 
+## Mind Benders
+- [Chess Puzzles](https://www.chesspuzzles.com/) - Checkmate in One, Two and Three
+
 ## Health and Fitness
+- [P.E. with Joe](https://www.youtube.com/playlist?list=PLyCLoPd4VxBvQafyve889qVcPxYEjdSTl) [Kids workout](https://www.youtube.com/playlist?list=PLyCLoPd4VxBvPHOpzoEk5onAEbq40g2-k) With millions of children out of school around the world, Joe Wicks, a YouTube fitness instructor, has taken it upon himself to become their PE teacher ([CNN](https://www.cnn.com/2020/03/25/world/joe-wicks-coronavirus-workout-wellness-trnd/index.html)).
 - [Free Meditiation](https://www.eventbrite.com/e/well-at-home-online-relaxation-series-free-daily-meditation-breathing-tickets-100443856278) In an effort to help Educators, Parents and Students, SKY Schools is offering free online guided meditations, multiple times a day. We've taught 110,000 students, parents and educators to de-stress over the last 10 years, and our certified teachers are here to help.
 - [Exercise, HITT, and Yoga for Adults, students and health workers](https://www.downdogapp.com/) Due to the current outbreak, many people are avoiding gathering in large groups, including at yoga studios and other fitness spaces. We believe that stressful times like these are precisely when people need wellness practices the most, and we are committed to doing our part to help out.
 
 ## Compilations
 - [List of Educational Companies offering free subscriptions](https://kidsactivitiesblog.com/135609/list-of-education-companies-offering-free-subscriptions/)
 - [Here's what to read and stream for free](https://www.marketplace.org/2020/03/20/heres-what-to-read-and-stream-for-free-during-the-covid-19-pandemic/)
+- [NPR's list of free things](https://www.npr.org/2020/03/20/818670715/getting-bored-heres-a-list-of-free-things-that-werent-free-before-coronavirus)
 
 ## Printable Sheets
 - Reading Log:  https://drive.google.com/file/d/1xHLR91_EAbuM9p8L6gYXb4lldNF7P0zm/view
