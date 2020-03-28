@@ -18,8 +18,13 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 ## Mind Benders
 - [Chess Puzzles](https://www.chesspuzzles.com/) - Checkmate in One, Two and Three
 
-## Other
-- [Museum Virtual Tours](https://www.travelandleisure.com/attractions/museums-galleries/museums-with-virtual-tours) - Pretend to travel the world. Go on a virtual tour of these 12 famous museums. 
+## Virtual Tours
+- [Museum Virtual Tours](https://www.travelandleisure.com/attractions/museums-galleries/museums-with-virtual-tours) - Pretend to travel the world. Go on a virtual tour of these 12 famous museums.
+- [Virtual Disney Tours](https://www.youtube.com/channel/UCYyJUEtYv-ZW7BgjhP3UbTg) - Virtually experience Walt Disney World attractions, shows, hotels, monorails, trains, boats, park areas, and more within an interactive 360º video environment.
+
+## Health and Fitness
+- [Free Meditiation](https://www.eventbrite.com/e/well-at-home-online-relaxation-series-free-daily-meditation-breathing-tickets-100443856278) In an effort to help Educators, Parents and Students, SKY Schools is offering free online guided meditations, multiple times a day. We've taught 110,000 students, parents and educators to de-stress over the last 10 years, and our certified teachers are here to help.
+- [Exercise, HITT, and Yoga for Adults, students and health workers](https://www.downdogapp.com/) Due to the current outbreak, many people are avoiding gathering in large groups, including at yoga studios and other fitness spaces. We believe that stressful times like these are precisely when people need wellness practices the most, and we are committed to doing our part to help out.
 
 ## Compilations
 - [List of Educational Companies offering free subscriptions](https://kidsactivitiesblog.com/135609/list-of-education-companies-offering-free-subscriptions/)
@@ -44,7 +49,7 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 - https://www.splashlearn.com/
 - https://www.storylineonline.net/
 - https://pbskids.org/
-- https://www.highlightskids.com/
+- https://www.highlightskids.com/ 
 - https://kids.nationalgeographic.com/
 - https://www.coolmath4kids.com/
 - http://www.mathgametime.com/
