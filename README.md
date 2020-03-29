@@ -9,7 +9,7 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 
 ## Story Time/Free Books
 - [Audible Stories](https://stories.audible.com/start-listen) - For as long as schools are closed, we're open. Starting today, kids everywhere can instantly stream an incredible collection of stories, including titles across six different languages, that will help them continue dreaming, learning, and just being kids.
-- [eBooks from National Emergency Library](https://archive.org/details/nationalemergencylibrary?and%5B%5D=languageSorter%3A%22English%22&sort=-downloads) - Free eBooks from National Emergency Library
+- [eBooks from National Emergency Library](https://archive.org/details/nationalemergencylibrary?and%5B%5D=languageSorter%3A%22English%22&sort=-downloads) Search by Grade (e.g. [Grade 3](https://archive.org/search.php?query=subject%3A%22Reading%20Level-Grade%203%22)). [FAQ](https://docs.google.com/document/d/1QjErbouWG7pUlzcxPcRk4YEtbYs8ItlVTgLa1DfGh68)
 - [SaveWithStories](https://www.instagram.com/savewithstories/?utm_source=ig_embed&utm_campaign=loading) - [Jennifer Garner and Amy Adams enlist celebrities to read children's books to kids stuck at home](https://www.cbsnews.com/news/coronavirus-jennifer-garner-amy-adams-celebrities-read-childrens-books-live-stream-quarantined-kids-school/)
 
 ## Learning Sites
