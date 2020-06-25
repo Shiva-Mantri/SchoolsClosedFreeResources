@@ -19,6 +19,7 @@ Due to current COVID-19 Corona virus crisis, lots of companies are offering thei
 
 ## Virtual Tours
 - [Virtual Museum Tours - https://virtualmuseums.io/](https://virtualmuseums.io/)
+- [Best virtual tours from each state](https://www.theactivetimes.com/best-virtual-tours-national-parks-zoos-museums)
 - [Museum Virtual Tours](https://www.travelandleisure.com/attractions/museums-galleries/museums-with-virtual-tours) - Pretend to travel the world. Go on a virtual tour of these 12 famous museums.
 - [Virtual Disney Tours](https://www.youtube.com/channel/UCYyJUEtYv-ZW7BgjhP3UbTg) - Virtually experience Walt Disney World attractions, shows, hotels, monorails, trains, boats, park areas, and more within an interactive 360º video environment.
 
